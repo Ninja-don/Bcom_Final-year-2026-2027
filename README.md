@@ -1,4 +1,4 @@
-## Hello Guys This is only for our personal us
+## Hello Guys This is only for our personal use
 
 Don't use or Consider This Resources as a Professional Curriculum<br>
 This repository contain only exam oriented in "The Rural College"<br>
